@@ -1,0 +1,1 @@
+# segredosda-ilha-sombriajvscrpt
